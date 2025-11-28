@@ -1,2 +1,0 @@
-# Colegio
-Pagina web cole 
